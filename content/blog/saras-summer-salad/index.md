@@ -1,5 +1,5 @@
 ---
-title: 'Sara's Summer Salad'
+title: "Sara's Summer Salad"
 date: "2019-05-08"
 thumbnail: ./summer_salad.jpg
 description: 
