@@ -1,16 +1,20 @@
 ---
-title: Epilogue
+title: Message from Mandy
 date: "2019-05-02"
 thumbnail:
-description: 
+description: Happy Birthday Sara!
 ---
 
-###### {The epitome of the desert/water contrast: snow-laden cacti on the way from Phoenix to Flagstaff, AZ}
+Sara,
 
-Going through my personal archives proved to be an unexpected journey through water and time. That is, before this project I knew there was a certain significance to water in the desert. What I did not realize is how present water has been in my desert life. Not only does it sustain me, it is also omnipresent. I could look through nearly any period of my life and find photographs of water in Arizona. This may seem like a contradiction, but if this project has demonstrated anything it is that water is both scarce (sometimes) and, without doubt, sacred.  
+I seriously cannot believe you are 21! SO grown! Seems like yesterday you were a lil freshman running around Elder and bonding over movie nights during preseason.
 
-The politics of water are not something I was aware of until college. I had lived my whole life in close proximity to the Gila River, but never knew its story until I studied a different aspect of the Gila River Indian Reservation for a class my Sophomore year. Growing up, I had heard that diabetes was a serious problem on the reservation, but no one ever explained how that diabetes rate came to be. It was by design, just like the water diversions that caused it. Water holds secrets.
+Oh how we've grown since then! I know that I have personally grown so much as a direct result of being your friend. I am grateful for all of the convos, runs, and Thanksgivings. I don't really know how to put into words how it has been a crazy three years and through the good moments (Boston!) and bad (Azusa/Longbeach!) we have been by each other's sides, supported one another, and kept each other sane. I truly cherish our friendship and hope we get to visit each other often as we both soon enter the next phase of our lives.
 
-In its secretive fashion, water in the desert holds a special significance that draws in the fascination of someone passing by. Water in the desert has always been instantly available in abundance from my sink, but upon reflection, I have also always viewed water in desert as a scarce, sacred miracle. For that is the reason I believe I have so much photographic evidence throughout my years of living in the desert. 
+You inspire me in more ways than you know. I hope I inspire you with some more meal ideas here :P Take care of yourself, inside and out, with some nourishing, tasty food, and the people who adore you, and you'll be alright. Hope you enjoy. Visit me in Idaho thx!
 
-I love when it rains in Phoenix, and I hate when it rains in Evanston. Water is different in the desert.
+xoxo
+Mandy
+
+![sara-and-mandy](buds.jpg)
+
